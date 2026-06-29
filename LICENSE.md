@@ -1,4 +1,4 @@
-#  
+#  anime card clash Scripts hidden is the best anime card clash Script, featuring custom skins and undetectable. Safe and powerful for all your needs.
 
 
 
